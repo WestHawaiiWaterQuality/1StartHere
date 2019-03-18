@@ -5,6 +5,6 @@ This GitHub account was created for a USC GIS masters' thesis by Don Borer with 
 
 The Esri project is available at https://www.arcgis.com/home/item.html?id=0cd5f60513f3453cbae592b4ff99f9a5.
 
-I am avialable for assistance and consultation at donborer@beachnet.com or 310-567-3370. Dr. Kemp is available at kakemp@usc.edu.
+I am avialable for assistance and consultation at donborer@hotmail.com or 310-567-3370. Dr. Kemp is available at kakemp@usc.edu.
 
 
